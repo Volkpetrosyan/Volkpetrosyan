@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Volkpetrosyan
 - 👀 I’m interested in alcohol
-- 🌱 I’m currently learning tydi tees
+- 🌱 I’m currently learning tidy tees
 - 💞️ I’m looking to collaborate on tesla
 - 📫 How to reach me to berlin
 
